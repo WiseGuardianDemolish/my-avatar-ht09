@@ -1,4 +1,4 @@
-
+my avatar advanced Script is the best my avatar Script, featuring auto-farm and auto-upgrade. Safe and powerful for all your needs.
 
 
 
